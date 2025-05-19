@@ -1,5 +1,57 @@
 # SS25 Sabotage
 
+## Week 4 - May 12th
+
+Hi all,
+Thanks again for attending the talks at HAU on Friday — we hope you had a great weekend.
+A couple of important notes for the sessions on Monday and Tuesday:
+
+## MONDAY
+
+-	Attendance: Please make sure to attend and be on time for class. Some of you have already reached the maximum number of unexcused absences. Unfortunately, we are required to factor this into your final evaluation.
+
+- Short Presentations: Please organize the short presentations scheduled for Monday. We’re aiming to see at least six presentations. You’re welcome to use the input we’ve already provided or develop your own concepts. Don’t worry about making a perfect presentation — what matters most is engaging with the topic and reflecting on your position within the design field.  Coordinate with each other to ensure the topics are distributed well. Multiple presentations on the same topic are fine as long as they explore different perspectives.
+
+## TUESDAY
+We’ll continue with group discussions and 1-on-1 talks about your project outlines and directions.
+Important: You must come prepared with something concrete for us to discuss. The project itself doesn’t need to be fully defined yet, but you should clearly map out what you want to talk about. Time is limited, so come with a focused set of materials — ideally, a selection of  references, texts, or theories presented in a way that’s easy to share on your laptop or screen. be sure that you can confidently present your research results and concluded project directions as we are approaching the end of the research period
+
+Looking forward to seeing you all next week.
+
+Best,
+Lukas + Aeneas
+
+## Week 3 - May 5th
+
+Thanks for the great presentations last week! let's keep the pace on monday with the presentations. 
+
+we will start at  10:00 - make sure to be on time 👀  
+
+we'll have a lunch break at 13:00 - 14:00 , after that, the presentations continue - also be on time here 👀
+  
+as already discussed, you have to organise who is presenting yourself until all participants have had at least 1 presentation.
+feel free to use the research inputs from last week, pick topics and resources from the suggestions or come up with your own ideas.
+
+looking forward to see you monday :)
+
+## Week 2 - April 29th
+
+Thanks for a great kick-off to all,
+For next week, a short summary of what you need to remember:
+- please properly start your research. I encourage especially those of you who have not yet engaged at least with the provided material to spend some serious time doing so.
+  - present next week in our first 1on1 session the following (in that order):
+    - A direction for your project (can be revised until the end of the research phase)
+    - A collection of insights that you provide starting points for your project (3-5 observations)
+    - Prepare this adequately (visuals, artefacts, sketches, mindmaps, slides) and engage with the material deeply to get the most out of the feedback Lukas and I can provide to help you.
+    - If you want to engage in a specific learning endeavour which requires specific attention and potentially our guidance, prepare please:
+      - what you want to learn
+      - the scope and goal
+      - your motivation
+  - We are holding another eight research presentations. Please coordinate among your peers who will present and make sure to avoid overlaps!
+  - Go through the program of the mini excursion (see last weeks update) and pick what parts of the program you would like to attend.
+
+That's it for now. We will update the schedule later, but you can expect us to start with input and presentations at 10 on monday and tuesday, and the 1on1 sessions in the afternoon.
+
 ## Week 1 - April 14th
 
 Hey everybody,
